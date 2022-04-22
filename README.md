@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JakePelkey
+- 👀 I’m interested in weights and games
+- 🌱 I’m currently learning how to breathe and draw
+- 💞️ I’m looking to collaborate on games
+- 📫 How to reach me please dont reach me (@pelka662@hsd.k12.or.us)
